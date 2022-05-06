@@ -1,0 +1,21 @@
+## Overall mediation
+### C2
+Can mediate effectively and naturally, taking on different roles according to the needs of the people and situation involved, identifying nuances and undercurrents and guiding a sensitive or delicate discussion. Can explain in clear, fluent, well-structured language the way facts and arguments are presented, conveying evaluative aspects and most nuances precisely, and pointing out sociocultural implications (e.g. use of register, understatement, irony and sarcasm).
+### C1
+Can act effectively as a mediator, helping to maintain positive interaction by interpreting different perspectives, managing ambiguity, anticipating misunderstandings and intervening diplomatically in order to redirect the conversation. Can build on different contributions to a discussion, stimulating reasoning with a series of questions. Can convey clearly and fluently in well-structured language the significant ideas in long, complex texts, whether or not they relate to their own fields of interest, including evaluative aspects and most nuances.
+### B2+
+Can establish a supportive environment for sharing ideas and facilitate discussion of delicate issues, showing appreciation of different perspectives, encouraging people to explore issues and adjusting sensitively the way they express things. Can build on others’ ideas, making suggestions for ways forward. Can convey the main content of well-structured but long and propositionally complex texts on subjects within their fields of professional, academic and personal interest, clarifying the opinions and purposes of speakers/signers.
+### B2
+Can work collaboratively with people from different backgrounds, creating a positive atmosphere by providing support, asking questions to identify common goals, comparing options for how to achieve them and explaining suggestions for what to do next. Can further develop others’ ideas, pose questions that invite reactions from different perspectives and propose a solution or next steps. Can convey detailed information and arguments reliably, e.g. the significant point(s) contained in complex but well-structured texts within their fields of professional, academic and personal interest.
+### B1+
+Can collaborate with people from other backgrounds, showing interest and empathy by asking and answering simple questions, formulating and responding to suggestions, asking whether people agree, and proposing alternative approaches. Can convey the main points made in long texts expressed in uncomplicated language on topics of personal interest, provided they can check the meaning of certain expressions.
+### B1
+Can introduce people from different backgrounds, showing awareness that some questions may be perceived differently, and invite other people to contribute their expertise and experience as well as their views. Can convey information given in clear, well-structured informational texts on subjects that are familiar or of personal or current interest, although lexical limitations cause difficulty with formulation at times.
+### A2+
+Can play a supportive role in interaction, provided other participants speak/sign slowly and that one or more of the participants helps them to contribute and to express their suggestions. Can convey relevant information contained in clearly structured, short, simple, informational texts, provided the texts concern concrete, familiar subjects and are formulated in simple everyday language.
+### A2
+Can use simple words/signs to ask someone to explain something. Can recognise when difficulties occur and indicate in simple language the apparent nature of a problem. Can convey the main point(s) involved in short, simple conversations or texts on everyday subjects of immediate interest, provided these are expressed clearly in simple language.
+### A1
+Can use simple words/signs and non-verbal signals to show interest in an idea. Can convey simple, predictable information of immediate interest given in short, simple signs and notices, posters and programmes.
+### Pre-A1
+No descriptors available
